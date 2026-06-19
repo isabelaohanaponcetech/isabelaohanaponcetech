@@ -6,4 +6,4 @@
 
 <h2>Desenvolvedora de Software | Ponce Tech</h2>
 
-Desenvolvedora de Software apaixonada por criar soluções eficientes e aprender novas tecnologias todos os dias 
+Desenvolvedora de Software apaixonada por criar soluções eficientes e aprender novas tecnologias todos os dias 🚀
